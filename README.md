@@ -1,1 +1,1 @@
-# heartdieasespridictiom
+# heartdieasespridiction
